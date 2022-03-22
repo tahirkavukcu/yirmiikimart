@@ -1,0 +1,2 @@
+# yirmiikimart
+Ogrenmek icin aciyorum. 
